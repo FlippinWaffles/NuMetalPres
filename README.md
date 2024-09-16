@@ -9,4 +9,4 @@ A few basic stupid rules to make sure everyone understands what this really is
 4. You have to sign up for an account through github to have the ability to post here
 5. Have fun!
 
-   
+All donations will be used to fund us buying more cds/tapes!
